@@ -1,3 +1,4 @@
 # Auyy.github.io
-อันต์ณิญา 
-Aunniya
+อันต์ณิญา วิจิตตนันทากุล
+Aunniya Vijittanantakul
+![image](01.jpg)
