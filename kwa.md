@@ -1,2 +1,0 @@
-# Auyy.github.io
-kwa
